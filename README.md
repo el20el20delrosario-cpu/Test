@@ -1,1 +1,1 @@
-This archive is fake lol
+Educational only
